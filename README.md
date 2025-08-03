@@ -37,7 +37,7 @@
 ### 📫 Let’s Connect
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/goutham-k-19456a2b9/)
-- 🧠 [Resume (optional)](https://yourlink.com/resume.pdf)
+- 🧠 [Resume](https://drive.google.com/file/d/10R-H4dqWzEqwXjy-p-x89YLyCK0y1RGE/view?usp=drive_link)
 - 📂 Portfolio coming soon...
 
 ---
